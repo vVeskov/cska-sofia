@@ -1,1 +1,1 @@
-# cska-sofia
+# CSKA-SOFIA
